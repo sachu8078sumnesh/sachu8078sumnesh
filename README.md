@@ -2,7 +2,7 @@
 - 👀 I’m interested in computers 
 - 🌱 I’m currently learning mechanical engineering 
 - 💞️ I’m looking to collaborate with mechanical and computers 
-- 📫 you can reach me through sumnesh_sachu
+- 📫 you can reach me through insta Instagram.com/sumnesh_sachu
 - 😄 Pronouns: som. neesh
 - ⚡ Fun fact: no fun
 
